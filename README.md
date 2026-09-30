@@ -1,0 +1,2 @@
+# ThnhRealKid-AI
+HI
